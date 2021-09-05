@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @BenjaminEvers
-- 👀 I’m interested in Design and photography
+- 👀 I’m interested in Design and photography and porgramming
 - Reach me on fiverr: https://www.fiverr.com/share/r9e2Lx
